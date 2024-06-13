@@ -1,4 +1,4 @@
-Free Cash App Money $2000 Free Money Now@\[Gtrx\]
+$2000 Free Money Cash App Now@\[Gtrx\]
 =================================================
 
 
